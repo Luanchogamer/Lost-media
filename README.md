@@ -1,2 +1,2 @@
-# Lost-media
-Talking Larry, taling Santa and Charlie the steak 
+# talking larry lost media 
+Talking Larry
